@@ -1,4 +1,4 @@
-# Behind-India-s-Food-Inflation
+# Behind-India's-Food-Inflation
 Ever noticed how food prices in India swing wildly — one month onions or tomatoes are cheap, the next they feel unaffordable.
 And with that, households adjust their baskets, retailers push offers, and brands change pack sizes.
 
